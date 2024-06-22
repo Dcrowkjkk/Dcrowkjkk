@@ -11,5 +11,4 @@ O meu nome é Dcrowkjkk
 - @dcrowkjkk
 
 
-![](https://tenor.com/pt-BR/view/hakari-dance-gif-1312815647488365957)
-
+https://tenor.com/pt-BR/view/hakari-dance-gif-1312815647488365957
