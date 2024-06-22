@@ -11,4 +11,5 @@ O meu nome é Dcrowkjkk
 - @dcrowkjkk
 
 
-![image](https://github.com/Dcrowkjkk/Dcrowkjkk/assets/173514662/57887d1e-9af9-417f-84d2-c25907ea86de)
+![image](https://github.com/Dcrowkjkk/Dcrowkjkk/assets/173514662/22f58626-5b01-4489-971e-768be67deb15)
+
